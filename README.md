@@ -1,3 +1,15 @@
+
+<center><img width="1080" height="330" alt="chandhana_transparent" src="https://github.com/user-attachments/assets/6247b545-505c-47b7-aa58-fc477810b687" /></center>
+
+
+
+
+
+
+
+
+
+
 Hi I'M Pocha Chandhana 
 
 🌟 About Me
