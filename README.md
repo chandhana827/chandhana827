@@ -1,5 +1,13 @@
 
-<center><img width="1080" height="330" alt="chandhana_transparent" src="https://github.com/user-attachments/assets/6247b545-505c-47b7-aa58-fc477810b687" /></center>
+
+
+
+
+
+
+Hi I'M 
+<center><img width="1060" height="500" alt="pocha_chandhana_animated" src="https://github.com/user-attachments/assets/d61252c5-2dd3-498a-b62d-312f271594e2" />
+</center>
 
 
 
@@ -10,7 +18,7 @@
 
 
 
-Hi I'M Pocha Chandhana 
+
 
 🌟 About Me
 - 🎓 Artificial Intelligence Student at G. Pullaiah College of Engineering & Technology
