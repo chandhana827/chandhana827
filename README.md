@@ -5,10 +5,7 @@
 
 
 
-Hi I'M 
-<center><img width="1060" height="500" alt="pocha_chandhana_animated" src="https://github.com/user-attachments/assets/d61252c5-2dd3-498a-b62d-312f271594e2" />
-</center>
-
+Hi I'M
 
 
 
